@@ -12,4 +12,6 @@ maybe not
 
 something else
 
-We are still talking about Joffrey for some reason. 
+We are still talking about Joffrey for some reason.
+
+Yeah we are
